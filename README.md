@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mateusilvas
-- 👀 I’m interested in Neuroscience research , I´m psychology student 
+- 👀 I’m interested in Neuroscience research  
 - 🌱 I’m currently learning SC, Neuroscience and undergraduate in Psychoogy
 - 📫 How to reach me @mateusilva.s (Instagram)
 - 😄 Pronouns: him/his
